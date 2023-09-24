@@ -1,1 +1,9 @@
-Посилання
+Посилання:
+1.
+https://monosnap.com/file/BeimoxDFh27MEkoFqE6mRQYiQC8h2b
+2.
+https://monosnap.com/file/s9YDEPM9g1XanaHg2nVleN1qPgnV5F
+3.
+https://monosnap.com/file/vHMQeAJJfzJyG94HCLNnlptgQzlM23
+4.
+https://monosnap.com/file/Iq1C6cNM5LyvtbPwMMumChv4u8s8ky
